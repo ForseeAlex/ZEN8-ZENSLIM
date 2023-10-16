@@ -1,1 +1,1 @@
-Z8 Test pack 48P V1.00
+OP500 ZEN8 Test pack 48P V1.00
